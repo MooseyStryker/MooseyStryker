@@ -1,6 +1,8 @@
-### A little about me
+## A little about me
 
-Hello! 
+### 👋 Hello, I'm Stryker...
+
+But you can call me Moosey!
 
 Everything about me comes from my need to learn and be better, I jumped away from my passion of coding and photography into a life of sales. Wow, what the heck was I thinking? Well, I didn't have any communication and social skills. And I realized through my entire school life that people who did the best, tend to be social adept. It's decided then, time to build life skills! This journey led me to becoming the youngest National Team Lead for NERD Power, a position where I took my greatest weakness in to my strength, and taught 17 leaders and over 100 people in the company how to connect and communicate. Whoa, that's a boast in confidence I didn't expect. 
 
